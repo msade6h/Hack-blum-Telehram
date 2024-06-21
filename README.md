@@ -1,6 +1,9 @@
 ### Hack Blum - README
 
+
 ![photo_۲۰۲۴-۰۶-۲۱_۲۲-۲۴-۰۵](https://github.com/msade6h/Hack-blum-Telehram/assets/94873023/de73556e-9125-4e6c-a07b-1a406f039530)
+
+![Screenshot 2024-06-21 231318](https://github.com/msade6h/Hack-blum-Telehram/assets/94873023/526d0165-c9d5-464c-a38d-bf5a59471e88)
 
 ---
 
