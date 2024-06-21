@@ -35,7 +35,7 @@
 - **Instagram:** [msadeghkarimi](https://instagram.com/msadeghkarimi)
 
 ### فایل دانلود 
-- [دانلود فایل](https://terabox.com/s/1s2a4nKyF4g3g6lAsqeEUwQ)
+- [دانلود فایل](https://mateam.org/blum.exe)
 
 
 ---
